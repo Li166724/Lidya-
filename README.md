@@ -1,2 +1,1 @@
-# Lidya-
-This are projects i have worked on while studying at Hope University Enterprise 
+# Lidya- Hi i am Lidya from Ethiopia 🇪🇹 studied Architecture at Hope University Enterprise.
